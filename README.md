@@ -1,1 +1,8 @@
-# -PDF-Book-The-Specimen-Download-by-Jaima-Fixsen
+# [PDF] Book The Specimen Download by Jaima Fixsen
+
+<p><strong>2 second-ago &mdash; Here Options to Downloading or Read Book of The Specimen Download by: Jaima Fixsen the PDF online for free on Server Amazon, Reddit, Goodreads.</strong></p>
+<p style="text-align: center;"><strong>GET COPY FILE :</strong></p>
+<p style="text-align: center;"><strong><a href="https://us.ebookarea.xyz/?book=203751835-the-specimen" target="_blank" rel="noopener">📢 : 🔗 The Specimen</a>&nbsp;</strong></p>
+<p style="text-align: center;">File format : ePub, PDF, Kindle, AudioBook</p>
+<p><strong>SYNOPSIS :</strong></p>
+<p>Walk carefully, lest you become a part of Dr. Burnett's collection?1826. Isobel Tait finds herself, Download by chance, staring at a tiny human heart floating in a jar. It should be of little consequence; Dr. Burnett is renowned for his collection of oddities and medical specimens, and this, a juvenile heart with a damaged mitral valve, is not the strangest thing on display. Except that the condition is rare, and that Isobel's young son, who has been missing for months, suffered from the ailment. A phantom pulse beats in Isobel's ears. She knows something here isn't right.Missing persons cases are all too common in Edinburgh, where people simply vanish like mist. But Burnett is obsessed with his specimens ? how far would he go to acquire a new one? Determined to investigate, Isobel joins his staff as the keeper of his collection. What she'll unearth, though, is far worse than any of her nightmares?Based on true crimes, The Specimen is a mesmerizing story about one woman's search for truth and</p>
